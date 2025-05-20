@@ -1,1 +1,1 @@
-![](https://w.wallhaven.cc/full/yx/wallhaven-yx3kok.jpg)
+![nakama](https://i.imgur.com/TQ3pOPb.png)
